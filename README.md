@@ -1,4 +1,4 @@
-## Hi , I am Priya ✨
+## Hi , I am Priyam ✨
 
 🧠Computer Science student<br/>
 ☄ like's Space exploration and  fun stuff<br/>

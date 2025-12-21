@@ -4,6 +4,7 @@
 ☄ like's Space exploration and  fun stuff<br/>
 Innovative Thinker<br/>
 
+visit my portfolio : https://priyamvadha-digital-portfolio.lovable.app
 
 
 ## 🌐 Socials:

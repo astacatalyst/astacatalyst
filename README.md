@@ -1,6 +1,6 @@
 ## Hi , I am Priyam ✨
 
-![Alt text describing the GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExb2Z3aDAydmFmbzBycGlpMDFtcWVidG4yMncwZ3NteDI2M3VjdDM5ZiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/00V9zBPthegYnOxmFq/giphy.gif)
+![Alt text describing the GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMHNrd3Y2eThhY2htZmxoNGdoNjgzam5vZjlodnV0YzYzdzFjZGRraSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/YShq7jYcTcXNdZFwvk/giphy.gif)
 
 
 🧠Computer Science student<br/>

@@ -1,5 +1,8 @@
 ## Hi , I am Priyam ✨
 
+![Alt text describing the GIF](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExbXQ4ZGtrZjEzMjZtMHJ1dmhrdnU0NHZkNDB5ODJzZDBqeHpnY2Y0YiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/vKHxl6iM2aZdtTdJ0Y/giphy.gif)
+
+
 🧠Computer Science student<br/>
 ☄ like's Space exploration and  fun stuff<br/>
 Innovative Thinker<br/>

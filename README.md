@@ -35,3 +35,4 @@ Anime & Drama addict<br/>
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
+![snake gif](https://github.com/astacatalyst/astacatalyst/blob/output/github-snake-dark.svg)

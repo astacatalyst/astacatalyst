@@ -1,15 +1,37 @@
-## Hi , I am Priyam ✨
+# Hi , I am Priyam ✨
 
 ## MY BADASS CHARACTER 👇🏻MAKI ZENIN ⚔️
 ![MAKI](https://github.com/user-attachments/assets/0d43e729-7eae-4fb5-8d22-cd6515e8cb63)
 
 ## MYSELF
-🧠Computer Science student<br/>
-☄ like's Space exploration<br/>
-Innovative Thinker<br/>
-Anime & Drama addict<br/>
-## feel the movement , there is no second time!!!
+🚀 Tech enthusiast | 🤖 Builder | 🎬 Anime & drama lover | 💭 Emotional feeler
 
+Welcome to my little corner of GitHub!
+I code, I build, I explore — and sometimes I overthink while listening to emotional soundtracks 😄
+
+## 💻 My Code Life
+- 🛠️ Problem solving & continuous learning
+- 🤖 AI & Data Science
+- 🛩️ Drones, Robotics
+
+🌱 Outside the Code Life
+
+## Because life isn’t just if-else and bugs 🫠
+- 🎭 Emotional feeler — deep thoughts hit me randomly
+- 🍿 Anime & drama addict (yes, I cry. No shame.)
+- 🎧 Music that matches my mood = instant therapy
+- 🌍 Love exploring fun, interesting & meaningful things
+- 💫 Curious about people, stories, and purpose
+
+📫 Let’s Connect
+If you’re into:
+- building cool things
+- deep conversations
+- or just vibing over anime & tech
+Feel free to connect or collaborate 🤝
+  ⭐ If you like my work, consider starring a repo — it keeps me motivated!
+## feel the movement , there is no second time!!!
+![giphy (4)](https://github.com/user-attachments/assets/d5f378bd-75a2-4b6f-b570-c83ec79a2b62)
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/astacatalyst) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/priyamvadha-sahasvi-nune-74271637b) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/astacatalyst) [![Codepen](https://img.shields.io/badge/Codepen-000000?logo=codepen&logoColor=white)](https://codepen.io/astacatalyst) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:priyamvadhanune@gmail.com) 
@@ -30,9 +52,13 @@ Anime & Drama addict<br/>
 ### 🔝 Top Contributed Repo
 ![](https://github-contributor-stats.vercel.app/api?username=astacatalyst&limit=5&theme=monokai&combine_all_yearly_contributions=true)
 
+![snake gif](https://github.com/astacatalyst/astacatalyst/blob/output/github-snake-dark.svg)
 ---
 [![](https://visitcount.itsvg.in/api?id=astacatalyst&icon=10&color=9)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+# SEE YAH!
+   ![naruto GIF](https://github.com/user-attachments/assets/9c7464bf-10c0-43a5-8eec-8cad409c687f)
 
-![snake gif](https://github.com/astacatalyst/astacatalyst/blob/output/github-snake-dark.svg)
+
+

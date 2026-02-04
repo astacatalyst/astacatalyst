@@ -57,8 +57,8 @@ Feel free to connect or collaborate 🤝
 [![](https://visitcount.itsvg.in/api?id=astacatalyst&icon=10&color=9)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-# SEE YAH!
-   ![naruto GIF](https://github.com/user-attachments/assets/9c7464bf-10c0-43a5-8eec-8cad409c687f)
-
-
+ SEE YAH!
+ <div align="center">
+   <img src = "https://github.com/user-attachments/assets/9c7464bf-10c0-43a5-8eec-8cad409c687f">
+ </div>
 

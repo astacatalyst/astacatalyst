@@ -1,7 +1,7 @@
 # Hi , I am Priyam ✨
 
-## MY BADASS CHARACTER 👇🏻MAKI ZENIN ⚔️
-![MAKI](https://github.com/user-attachments/assets/0d43e729-7eae-4fb5-8d22-cd6515e8cb63)
+## MY MOTIVATION THESE DAYS-
+![Max Verstappen](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNW1mamRzem4weDBjNG8yaXBja3Z3dDU3anNjMDIyM2Vvc3E3cmY2bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MXXz8bDBvn3f2hbFGB/giphy.gif)
 
 ## MYSELF
 🚀 Tech enthusiast | 🤖 Builder | 🎬 Anime & drama lover | 💭 Emotional feeler

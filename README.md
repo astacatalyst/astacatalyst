@@ -1,7 +1,8 @@
 # Hi , I am Priyam ✨
 
-## MY MOTIVATION THESE DAYS-
-![Max Verstappen](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNW1mamRzem4weDBjNG8yaXBja3Z3dDU3anNjMDIyM2Vvc3E3cmY2bSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/MXXz8bDBvn3f2hbFGB/giphy.gif)
+## MY MOTIVATION THESE DAYs
+![Max Verstappen Supermax GIF](https://github.com/user-attachments/assets/987d4dff-f6c3-48c0-9022-7901422b2d10)
+## You can sleep when you're dead - MAX VERSTAPPEN
 
 ## MYSELF
 🚀 Tech enthusiast | 🤖 Builder | 🎬 Anime & drama lover | 💭 Emotional feeler

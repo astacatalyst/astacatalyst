@@ -19,7 +19,7 @@ I code, I build, I explore — and sometimes I overthink while listening to emot
 
 ## Because life isn’t just if-else and bugs 🫠
 - 🎭 Emotional feeler — deep thoughts hit me randomly
-- 🍿 Anime & drama addict (yes, I cry. No shame.)
+- 🍿 Anime & F1 addict
 - 🎧 Music that matches my mood = instant therapy
 - 🌍 Love exploring fun, interesting & meaningful things
 - 💫 Curious about people, stories, and purpose

@@ -1,8 +1,8 @@
 # Hi , I am Priyam ✨
 
-## MY MOTIVATION THESE DAYs
-![Max Verstappen Supermax GIF](https://github.com/user-attachments/assets/987d4dff-f6c3-48c0-9022-7901422b2d10)
-## You can sleep when you're dead - MAX VERSTAPPEN
+## MY MOTIVATION 
+![Izuku Midoriya GIF](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYTg3dHF4YmNsc3F3MjN2Z2F1Z25ya2JiZjZwYmEwcWxycmZ3c2I4eSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/vFDTayhvGvi8sgkZEX/giphy.gif)
+## resilience, the true meaning of heroism, and pushing past limits - Izuku Midoriya
 
 ## MYSELF
 🚀 Tech enthusiast | 🤖 Builder | 🎬 Anime & drama lover | 💭 Emotional feeler
